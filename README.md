@@ -1,0 +1,1 @@
+# 2023-free-ai-in-every-city-hack
